@@ -2,7 +2,7 @@
 
 
 
-## I'm a Student working for this future!
+## I'm a Student working for his future!
 
 - 🔭 I’m currently learning 
 - ⚡ I love to animate and play with cards
